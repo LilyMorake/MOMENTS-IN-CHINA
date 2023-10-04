@@ -8,4 +8,4 @@ Follow the link below to view China's mid automn festival, thats one of the holi
 
 lets tour see some pics of the new year celebration
 
-![Lion dance](https://images.search.yahoo.com/search/images;_ylt=Awr9_jDwKR1loBkJYxpXNyoA;_ylu=Y29sbwNncTEEcG9zAzEEdnRpZAMEc2VjA3BpdnM-?p=lion+dance+chinese+new+year&fr2=piv-web&type=E210US739G0&fr=mcafee#id=7&iurl=https%3A%2F%2Fmedia.thestar.com.my%2FProd%2F3B9C7FDA-AC67-462F-90A4-4317F13206EC&action=click)
+![Lion dance](https://cdn1.i-scmp.com/sites/default/files/styles/1200x800/public/images/methode/2019/02/05/8d7cb59c-2886-11e9-8864-9e8ab15a22ca_image_hires_222452.JPG?itok=LM87Y-Y_&v=1549376702)
