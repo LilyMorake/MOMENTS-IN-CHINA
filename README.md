@@ -8,6 +8,6 @@ Follow the link below to view China's mid automn festival, thats one of the holi
 [ mid automn moon festival link](https://search.yahoo.com/search;_ylt=AwrO7tU.Jh1l8JYIhVeJzbkF?p=mid-autumn+moon+festival&type=E210US739G0&fr=mcafee&fr2=p%3As%2Cv%3Ai%2Cm%3Apivot&stype=web)
 
 ## NEW YEAR IN CHINA
-lets tour see some pics of the new year celebration
+lets tour the lion dance of the new year celebration
 
 ![Lion dance](https://cdn1.i-scmp.com/sites/default/files/styles/1200x800/public/images/methode/2019/02/05/8d7cb59c-2886-11e9-8864-9e8ab15a22ca_image_hires_222452.JPG?itok=LM87Y-Y_&v=1549376702)
