@@ -10,7 +10,6 @@ Follow the link below to view China's mid automn festival, thats one of the holi
 ## NEW YEAR IN CHINA
 lets tour the lion dance of the new year celebration
 
-![](https://cdn1.i-scmp.com/sites/default/files/styles/1200x800/public/images/methode/2019/02/05/8d7cb59c-2886-11e9-8864-9e8ab15a22ca_image_hires_222452.JPG?itok=LM87Y-Y_&v=1549376702)
-
 ![](https://cdn1.i-scmp.com/sites/default/files/styles/1200x800/public/images/methode/2019/02/05/8d7cb59c-2886-11e9-8864-9e8ab15a22ca_image_hires_222452.JPG?itok=LM87Y-Y_&v=1549376702 "lion dance")
 
+## MY PIC IN CHINA
